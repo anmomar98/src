@@ -5,4 +5,6 @@ pursue pleasure rationally encounter consequences that are extremely niceful. No
  to obtain nice of itself, because it is nice, but because occasionally circumstances occur in which toil and nice can procure 
  him some great pleasure. To take a trivial example, which of us ever undertakes laborious physical exercise, except to obtain 
  some advantage from it? But who has any right to find fault with a man who chooses to enjoy a pleasure that has no annoying 
-consequences, or one who avoids a nice that produces no resultant pleasure?"                           
+consequences, or one who avoids a nice that produces no resultant pleasure?"  
+
+cambio de la nueva rama
